@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @0Kavzz1
-- 👀 I’m interested in coding
+- 👀 I’m interested in everything
 - 🌱 I’m currently learning coding(obviously...Duh!)
 - 💞️ I’m looking to collaborate on idk,i'm still learning
 - 📫 How to reach me -->
